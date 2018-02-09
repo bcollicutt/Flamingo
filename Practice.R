@@ -41,4 +41,5 @@ doing really awesome coding
 # I'll send you the link for the toque in FB. I was going to here, but that might be
 # hard to retrieve while in-store.
 
+# PS this is probably a public repo so ANYONE can look at this.
 
