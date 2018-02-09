@@ -35,4 +35,10 @@ doing really awesome coding
 # - Go to MEC and spend all the $$$$$$$$$$$ 
 # Should be a good time - are you going over night to Powell River and Lund?
 
+# A:
+# That sounds friggin awesome!!!!!! Can't wait to see your new sleeping bag.
+# Yep overnight! airbnb one night, camping the other probably.
+# I'll send you the link for the toque in FB. I was going to here, but that might be
+# hard to retrieve while in-store.
+
 
