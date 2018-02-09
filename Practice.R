@@ -43,3 +43,8 @@ doing really awesome coding
 
 # PS this is probably a public repo so ANYONE can look at this.
 
+#B: 
+#IS IT REALLY!? Wouldn't they have to request stuff like we did before they could see it? 
+#I don't know how I feel about that
+#Good thing I didn't say anything terrible about people... 
+#Do you think people go around and mess with people stuff on purpose?
