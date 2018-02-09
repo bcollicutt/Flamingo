@@ -25,3 +25,14 @@ doing really awesome coding
 # - go to the bakery in Lund
 # - check out POLLEN SWEATERS.
 # - watch the crazy tidal rapids at SKOOKUMCHUCK NARROWS
+
+#B:
+#OH RIGHT, that sounds fun. All else fails you should get a backpack Zach can carry you around in
+#I'm looking forward to Vic - we are going to do the following:
+# - Go to Bin 4 and eat ALL THE BURGERSSSSSS
+# - GET DRUNKKKKK
+# - DANCEEEEEEEEE
+# - Go to MEC and spend all the $$$$$$$$$$$ 
+# Should be a good time - are you going over night to Powell River and Lund?
+
+
