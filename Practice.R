@@ -16,3 +16,12 @@ doing really awesome coding
 #Brenna: 
 #I'm going to Nanaimo tomorrow morning and YES to the salmon talk! You are going yes? 
 #Have you and Zach decided what you are going to do this weekend?
+
+#Ang:
+# FUN!!! especially re: bach parties. they are the best.
+# Tonight - Yes to salmon talk. The weekend - We decided to go to POWELL RIVER + LUND to do the following
+# - drink beer at TOWNSITE BREWING
+# - practice walking with Angeleen's sore ankle (ie: walking in new towns = fun)
+# - go to the bakery in Lund
+# - check out POLLEN SWEATERS.
+# - watch the crazy tidal rapids at SKOOKUMCHUCK NARROWS
